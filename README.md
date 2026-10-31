@@ -1,1 +1,1 @@
-# https-batianap-primary-school.boyandfather.chatgpt.site
+https://batianap-primary-school.boyandfather.chatgpt.site
